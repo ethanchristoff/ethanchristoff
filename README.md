@@ -11,15 +11,13 @@
 
 - I'm also a fan of **automation**
 
-- 👨‍💻 All of my projects are available at [https://ethan-perera-portfolio.netlify.app/](https://ethan-perera-portfolio.netlify.app/)
+- All of my projects are available at [https://ethan-perera-portfolio.netlify.app/](https://ethan-perera-portfolio.netlify.app/)
 
-- 💬 Ask me about **anything AI related**
+- Ask me about **anything AI related**
 
-- 📫 How to reach me **ethan.christoff@gmail.com**
+- How to reach me **ethan.christoff@gmail.com**
 
-- 📄 Know about my experiences [https://ethan-perera-portfolio.netlify.app/](https://ethan-perera-portfolio.netlify.app/)
-
-- Something about me is **that I'm quite nit picky about video games**
+- Know about my experiences [https://ethan-perera-portfolio.netlify.app/](https://ethan-perera-portfolio.netlify.app/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
